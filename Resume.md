@@ -1,1 +1,1 @@
-# KIMYURI RESUME
+# Yuri Kim Resume
